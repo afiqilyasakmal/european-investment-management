@@ -1,1 +1,0 @@
-# european-investment-management
